@@ -19,3 +19,7 @@ this community only for education purpose of you miss use we are not responsibil
        thank you 
 
                        learn more...
+
+Instagram 
+YouTube 
+Facebook 
